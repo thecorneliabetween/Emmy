@@ -1,4 +1,2 @@
 ## Hi my name is Emmy! Nice to meet you 👋
 Forza Ferrari 🏎️
-
-- ** Pronouns: ** she/her
